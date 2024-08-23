@@ -1,2 +1,2 @@
-For the screenshots of the website check issues ---> Preview.
+For the screenshots of the website click here and check issues ---> Preview.
  
